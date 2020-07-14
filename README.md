@@ -1,0 +1,1 @@
+https://bigstar-vlog.tistory.com/2 : expo - 스마트폰 연동
